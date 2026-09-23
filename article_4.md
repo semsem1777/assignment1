@@ -1,1 +1,4 @@
-hello from article 4
+## Spiritual
+
+- develop a solid relationship with God
+- put Him first in any and everything
