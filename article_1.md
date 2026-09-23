@@ -1,1 +1,4 @@
-hello from article 1
+## Career
+
+- become a good well-rounded designer
+- land a job @ Spotify
