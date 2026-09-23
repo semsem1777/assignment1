@@ -1,4 +1,4 @@
-## Career
+## Spiritual
 
-- become a good well-rounded designer
-- land a job @ Spotify
+- develop a solid relationship with God
+- put Him first in any and everything
